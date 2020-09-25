@@ -2,7 +2,7 @@
 
 <img align="right" src="https://github-readme-stats.vercel.app/api?username=soleo&title_color=fff&text_color=fff&icon_color=ccc&bg_color=000&hide_title=true&show_icons=true" />
 
-- 🔭 I’m currently working for a groccery delivery company
+- 🔭 I’m currently working for a grocery delivery company, Peapod Digital Labs in Chicago, IL
 - 📫 How to reach me via [Email](mailto:shaoxinjiang@gmail.com)
 - 😄 Pronouns: He / Him /His
 - 📱 Find fun on my website [Xinjiang Shao](https://www.xinjiangshao.com/)
