@@ -7,5 +7,5 @@
 - 😄 Pronouns: He / Him /His
 - 📱 Find fun on my website [Xinjiang Shao](https://www.xinjiangshao.com/)
 - 🤳 Follow me on [Twitter](https://twitter.com/soleoshao) or [Instagram](https://www.instagram.com/soleoshao/)
-- 🖋 Read writings since 2008 on my [Medium Blog](https://medium.com/@soleoshao)
+- 🖋 Read writings on my [Medium Blog](https://medium.com/@soleoshao)
 - ⚡ Fun fact: I'm terrible at driving/riding. Once I hit a tree when riding bike to work.
