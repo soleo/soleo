@@ -9,3 +9,6 @@
 - 🤳 Follow me on [Twitter](https://twitter.com/soleoshao) or [Instagram](https://www.instagram.com/soleoshao/)
 - 🖋 Read writings on my [Medium Blog](https://medium.com/@soleoshao)
 - ⚡ Fun fact: I'm terrible at driving/riding. Once I hit a tree when riding bike to work.
+
+
+<a href="https://www.buymeacoffee.com/soleo" target="_blank"><img src="https://cdn.buymeacoffee.com/buttons/v2/default-orange.png" alt="Buy Me A Coffee" style="height: 60px !important;width: 217px !important;" ></a>
