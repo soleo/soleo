@@ -4,7 +4,7 @@
 
 - 🔭 I’m currently working for a grocery delivery company, Peapod Digital Labs in Chicago, IL
 - 📫 How to reach me via [Email](mailto:shaoxinjiang@gmail.com)
-- 😄 Pronouns: He / Him /His
+- 😄 Pronouns: He / Him / His
 - 📱 Find fun on my website [Xinjiang Shao](https://www.xinjiangshao.com/)
 - 🤳 Follow me on [Twitter](https://twitter.com/soleoshao) or [Instagram](https://www.instagram.com/soleoshao/)
 - 🖋 Read writings on my [Medium Blog](https://medium.com/@soleoshao)
