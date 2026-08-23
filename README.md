@@ -1,6 +1,5 @@
 ### Hi there 👋
 
-<img align="right" src="https://github-readme-stats.vercel.app/api?username=soleo&title_color=fff&text_color=fff&icon_color=ccc&bg_color=000&hide_title=true&show_icons=true" />
 
 - 🔭 I’m currently working for a healthcare company in Chicago, IL
 - 📫 How to reach me via [Email](mailto:shaoxinjiang@gmail.com)
